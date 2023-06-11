@@ -1,1 +1,6 @@
-# OIBSIP_Task-1
+![Screenshot (16)](https://github.com/sandeepsingh40/OIBSIP_Task-1/assets/136231311/016d66fa-767d-4a17-89c3-0ad7ab55546b)
+![Screenshot (19)](https://github.com/sandeepsingh40/OIBSIP_Task-1/assets/136231311/dae0039d-c42d-439c-80a8-2adaf6e44c64)
+![Screenshot (20)](https://github.com/sandeepsingh40/OIBSIP_Task-1/assets/136231311/55e5cfb5-b91c-4ec5-9a51-9e4633c94a44)
+![Screenshot (21)](https://github.com/sandeepsingh40/OIBSIP_Task-1/assets/136231311/9186b1c8-83c9-4790-9580-66b16c0e553f)
+# OIBSIP_Task-1![Screenshot (22)](https://github.com/sandeepsingh40/OIBSIP_Task-1/assets/136231311/e53219b5-69af-4a7d-bb7d-e2abec65f03e)
+![Screenshot (23)](https://github.com/sandeepsingh40/OIBSIP_Task-1/assets/136231311/f34cddef-0ba4-4e5c-9e77-485d78094c25)
